@@ -9,7 +9,6 @@ PORTIES: 16 personen (20 x 20 cm vorm)
 ###    INGREDIËNTEN
 
 60 gram ongezouten roomboter
-
 150 gram fijne kristalsuiker
 
 75 gram donkerbruine basterdsuiker
