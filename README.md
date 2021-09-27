@@ -9,14 +9,23 @@ PORTIES: 16 personen (20 x 20 cm vorm)
 ###    INGREDIËNTEN
 
 60 gram ongezouten roomboter
+
 150 gram fijne kristalsuiker
+
 75 gram donkerbruine basterdsuiker
+
 125 gram pure chocolade
+
 1 el stroop (pannenkoekenstroop)
+
 2 eieren
+
 1 tl vanille extract
+
 100 gram bloem
+
 20 gram cacaopoeder
+
 1 tl bakpoeder
 
 ### INSTRUCTIES
