@@ -18,3 +18,9 @@ PORTIES: 16 personen (20 x 20 cm vorm)
  100 gram bloem
  20 gram cacaopoeder
  1 tl bakpoeder
+
+### INSTRUCTIES
+
+Doe boter, beide soorten suiker, chocola en stroop in een pannetje. Zet het op een laag vuur en roer door tot de boter en chocolade zijn gesmolten. De suikerkorrels hoeven niet te smelten. Laat het mengsel nu afkoelen. Kamertemperatuur is goed, maar lauwwarm mag ook.
+
+Klop ondertussen de eieren en het vanille-extract luchtig. Voeg het chocolademengsel toe en mix op een lage snelheid tot een egaal mengsel.
